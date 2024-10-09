@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @GaehnJal
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in void???
+- 🌱 I’m currently learning... Why is there a plant?
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Be faster then me
-- 😄 Pronouns: ...
-- ⚡ Fun fact: I'm dumb
+- 😄 Pronouns: the ultimate
+- ⚡ Fun fact: My IQ is lower than 0
 
 <!---
 GaehnJal/GaehnJal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
