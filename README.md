@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning... Why is there a plant?
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Be faster then me
-- 😄 Pronouns: the ultimate
+- 😄 Pronouns: he / him; yk just some random stuff don't care about :-)
 - ⚡ Fun fact: My IQ is lower than 0
 
 <!---
