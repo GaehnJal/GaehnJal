@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Be faster then me
 - 😄 Pronouns: he / him; yk just some random stuff don't care about :-)
-- ⚡ Fun fact: I'm an existing but random guy (°-°)
+- ⚡ Fun fact: I'm just a human (no I'm god, you know?)
 
 <!---
 GaehnJal/GaehnJal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
