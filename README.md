@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GaehnJal
-- 👀 I’m interested in void???
+- 👀 I’m interested in
 - 🌱 I’m currently learning... Why is there a plant?
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: Be faster then me
